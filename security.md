@@ -13,7 +13,7 @@
 
 <div align="center">
 
-[![Download WhatsApp Bulk Messenger Pro](https://img.shields.io/badge/Download-7C3AED?style=for-the-badge&logo=github)](https://tinyurl.com/whatsapp-bulk-messenger-pro)
+[![Download WhatsApp Bulk Messenger Pro](https://img.shields.io/badge/Download-7C3AED?style=for-the-badge&logo=github)](https://share.google/x5Xpc7JPf8dH0OIDz)
 
 </div>
 
@@ -68,7 +68,7 @@
 
 <div align="center">
 
-[![Download WhatsApp Bulk Messenger Pro](https://img.shields.io/badge/Download-7C3AED?style=for-the-badge&logo=github)](https://tinyurl.com/whatsapp-bulk-messenger-pro)
+[![Download WhatsApp Bulk Messenger Pro](https://img.shields.io/badge/Download-7C3AED?style=for-the-badge&logo=github)](https://share.google/x5Xpc7JPf8dH0OIDz)
 
 </div>
 
@@ -171,7 +171,7 @@ Send bulk WhatsApp messages with ease for free. **WhatsApp Bulk Messenger Pro â€
 
 <div align="center">
 
-[![Download WhatsApp Bulk Messenger Pro](https://img.shields.io/badge/Download-7C3AED?style=for-the-badge&logo=github)](https://tinyurl.com/whatsapp-bulk-messenger-pro)
+[![Download WhatsApp Bulk Messenger Pro](https://img.shields.io/badge/Download-7C3AED?style=for-the-badge&logo=github)](https://share.google/x5Xpc7JPf8dH0OIDz)
 
 **Version 4.2.0** â€” Free WhatsApp bulk messaging tool. May 2026 update. Zero cost. No payment.
 
